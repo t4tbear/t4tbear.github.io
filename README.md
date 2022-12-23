@@ -1,2 +1,2 @@
 # t4tbear.github.io
-My First Few Games
+click to go to website
